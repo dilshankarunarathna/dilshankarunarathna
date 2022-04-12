@@ -8,5 +8,5 @@ Here are somethings about me :
 - 🤔 I’m looking for help with making friends
 - 💬 Ask me about my grandchildren
 - 📫 How to reach me: find me !
-- 😄 Pronouns: ...
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: ...
