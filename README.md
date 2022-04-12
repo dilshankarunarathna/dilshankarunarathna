@@ -9,4 +9,4 @@ Here are somethings about me :
 - 💬 Ask me about my grandchildren
 - 📫 How to reach me: find me !
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I'm awesome !
