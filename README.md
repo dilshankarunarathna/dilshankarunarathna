@@ -1,6 +1,6 @@
-### Hi there 👋
+### Hi there 👋 I'm D
 
-Here are some ideas to get you started:
+Here are somethings about me :
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
