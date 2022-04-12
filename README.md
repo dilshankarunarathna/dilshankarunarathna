@@ -1,4 +1,4 @@
-### Hi there 👋 I'm D
+### Hi there 👋 I'm Dil
 
 Here are somethings about me :
 
